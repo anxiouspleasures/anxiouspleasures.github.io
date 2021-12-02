@@ -10,4 +10,4 @@ https://www.amyelkins.com/anxious-pleasures#
 https://twitter.com/amyelkinsphoto
 
 # Are you a collector?
-[Find the notes](https://anxiouspleasures.github.io/anxious-notes)
+[Find the notes](https://anxiouspleasures.github.io/anxious-notes/)
