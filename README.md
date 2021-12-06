@@ -10,4 +10,4 @@ For 377 consecutive days, from the day the lockdown started until Elkins receive
 [https://twitter.com/amyelkinsphoto](https://twitter.com/amyelkinsphoto)
 
 # Are you a collector?
-[Find the notes](https://anxiouspleasures.github.io/anxious-notes/)
+[Find the notes](https://anxiouspleasures.github.io/anxious-notes/) ! Under Construction
